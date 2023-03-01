@@ -1,0 +1,2 @@
+# operationerradication
+Video for thought 
